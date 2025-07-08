@@ -1,2 +1,2 @@
-# His-Presence-Devotional-Ministries-
+# HisPresenceDevotionalMinistries
 Religious Organization 
